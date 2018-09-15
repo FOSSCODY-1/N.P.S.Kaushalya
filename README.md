@@ -1,2 +1,2 @@
-# N.P.S.Kaushalya-
+# N.P.S.Kaushalya
 [Product Name]
